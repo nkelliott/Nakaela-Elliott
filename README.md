@@ -1,12 +1,12 @@
 # Nakaela-Elliott
 ** What name are you registered under?
-Nakaela Elliott
+   Nakaela Elliott
 
 ** What you prefer to be called?
-Nakaela: Nuh-Kale-Uh
+   Nakaela: Nuh-Kale-Uh
 
 ** What pronouns do you prefer?
-She/her/hers
+   She/her/hers
 
 ** Give 3 fun facs about yousrself
 1. I like to play basketball..
